@@ -8,4 +8,4 @@ Best regards
 Ryan Johnson
 ![Screenshot_2022-03-13_010736](https://user-images.githubusercontent.com/51103416/158053824-4184303e-d675-48e0-929d-3ee6a72384db.jpg)
 
-Onedrive link:
+Copy and paste Onedrive link:
